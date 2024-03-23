@@ -1,1 +1,1 @@
-Tutoriales en pdf donde le salvo la vida al beto del futuro sobre ciertas actividades
+Tutoriales en pdf donde ayudo al dev del futuro sobre ciertas actividades
